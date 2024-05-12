@@ -1,1 +1,1 @@
-www.boyriyadh.com
+www.boyriyadh.com.sa
